@@ -6,7 +6,7 @@ Okay! Okay. You've made your point! I'll leave you alone! I'll leave you be! I'l
 <p align="center">
 ⠀ ⠀  ‪‪❤︎‬⠀ ⠀  <a href=https://sillytea.straw.page/>from wifey</a>⠀ ⠀  ‪‪❤︎‬⠀ ⠀  
   <p align="center">
-<a href=https://n1ght-dreamer.straw.page/>strawpage</a>⠀ ⠀  ➴⠀   ⠀<a href=https://en.pronouns.page/@littleoreo>prns.page</a>
+<a href=https://flavorfoleyy.straw.page/>strawpage</a>⠀ ⠀  ➴⠀   ⠀<a href=https://en.pronouns.page/@littleoreo>prns.page</a>
 </p>
 
 <p align="center">
