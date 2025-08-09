@@ -1,6 +1,8 @@
-<img width="999" height="350" alt="Untitled54_20250710213853" src="https://github.com/user-attachments/assets/644cd163-5719-4af8-a2d1-27277143b8ca" />
+<p alight="center"> 
+  <img width="900" height="400" alt="Untitled57_20250809182403" src="https://github.com/user-attachments/assets/35a39160-d1c3-4712-aa84-c23f59c4a785" />
+
 <p align="center">
-Okay! Okay. You've made your point! I'll leave you alone! I'll leave you be! I'll stop! I'LL STOP! I'LL STOOOOP!!!
+"I'll let you know if you drop to your knees and lick my shoes."
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 <p align="center">
@@ -10,4 +12,5 @@ Okay! Okay. You've made your point! I'll leave you alone! I'll leave you be! I'l
 </p>
 
 <p align="center">
-He... can't get us out if you continue to stand in our way.
+"From the bottom of my heart... I am truly in love with the hope that sleeps inside you."
+<img width="735" height="245" alt="Untitled59_20250809183629" src="https://github.com/user-attachments/assets/20e0a3ad-515d-4c65-b74f-0dd6bdcf524c" />
