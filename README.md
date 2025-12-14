@@ -16,4 +16,3 @@
 <p align="center">
 "If you won't face the truth... then face me."
 <img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/a75107de-90b9-4a9a-a873-ef761311b22a" />
- />
