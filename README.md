@@ -1,9 +1,11 @@
 <p alight="center"> 
-  <img width="900" height="400" alt="Untitled57_20250809182403" src="https://github.com/user-attachments/assets/35a39160-d1c3-4712-aa84-c23f59c4a785" />
+  <img width="900" height="400" alt="<img width="1440" height="636" alt="image" src="https://github.com/user-attachments/assets/849630fd-488d-46f1-becf-a3177ca1cb74" />
 
 <p align="center">
-"I'll let you know if you drop to your knees and lick my shoes."
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+"You are here again, DREAMER. To what do we owe the occasion? Are you running out of time?"
+
+<p align="center">✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+<p align="center">︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
 <p align="center">
 ⠀ ⠀  ‪‪❤︎‬⠀ ⠀  <a href=https://sillytea.straw.page/>from riri!!</a>⠀ ⠀  ‪‪❤︎‬⠀ ⠀  
@@ -12,5 +14,6 @@
 </p>
 
 <p align="center">
-"From the bottom of my heart... I am truly in love with the hope that sleeps inside you."
-<img width="735" height="245" alt="Untitled59_20250809183629" src="https://github.com/user-attachments/assets/20e0a3ad-515d-4c65-b74f-0dd6bdcf524c" />
+"If you won't face the truth... then face me."
+<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/a75107de-90b9-4a9a-a873-ef761311b22a" />
+ />
