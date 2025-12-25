@@ -10,7 +10,7 @@
 <p align="center">
 ⠀ ⠀  ‪‪❤︎‬⠀ ⠀  <a href=https://sillytea.straw.page/>from riri!!</a>⠀ ⠀  ‪‪❤︎‬⠀ ⠀  
   <p align="center">
-<a href=https://flavorfoleyy.straw.page/>strawpage</a>⠀ ⠀  ➴⠀   ⠀<a href=https://en.pronouns.page/@p.ai.nter>prns.page</a>
+SOMETHING⠀ ⠀  ➴⠀   ⠀<a href=https://en.pronouns.page/@p.ai.nter>prns.page</a>
 </p>
 
 <p align="center">
